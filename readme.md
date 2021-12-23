@@ -11,3 +11,4 @@
 |2021-12-09|河南郑州|物业威胁签字女业主|[视频](https://github.com/shameorg/shameOrg/blob/main/%E6%B2%B3%E5%8D%97/%E8%A2%AB%E7%BD%A2%E5%85%8D%E7%9A%84%E5%89%8D%E7%89%A9%E4%B8%9A%E9%AA%9A%E6%89%B0%E5%A8%81%E8%83%81%E5%A5%B3%E4%B8%9A%E4%B8%BB.mp4)|
 |2021-12-01|辽宁铁岭|开原金山小区物业将业主委员会张贴的告知书撕掉|[视频](https://github.com/shameorg/shameOrg/blob/main/%E8%BE%BD%E5%AE%81/%E9%93%81%E5%B2%AD%E5%BC%80%E5%8E%9F%E5%B0%8F%E5%8C%BA%E7%89%A9%E4%B8%9A%E5%B0%86%E4%B8%9A%E4%B8%BB%E5%A7%94%E5%91%98%E4%BC%9A%E5%BC%A0%E8%B4%B4%E7%9A%84%E5%91%8A%E7%9F%A5%E4%B9%A6%E6%92%95%E6%8E%89.mp4)|
 |2021-07-01|广东深圳|小区物业不作为饮用水被污染|[视频](https://github.com/shameorg/shameOrg/blob/main/%E5%B9%BF%E4%B8%9C/%E6%B7%B1%E5%9C%B3%E5%8D%97%E5%B1%B1%E4%B8%80%E5%B0%8F%E5%8C%BA%E7%89%A9%E4%B8%9A%E4%B8%8D%E4%BD%9C%E4%B8%BA%E9%A5%AE%E7%94%A8%E6%B0%B4%E8%A2%AB%E6%B1%A1%E6%9F%93.mp4)|
+|2021-07-20|河南郑州|郑州暴雨物业不作为，车库淹的都是水，<br>业主买抽水泵抽水，忙活了一夜！|[视频]()|
